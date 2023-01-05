@@ -1,0 +1,2 @@
+# ishta
+life is short
